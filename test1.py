@@ -1,1 +1,1 @@
-summa enna da deii
+mari da venna summa enna da deii
